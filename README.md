@@ -1,7 +1,7 @@
 # Hi there 👋
 ## I'm Nathnael✨✨ 
 ### I'm a software developer
-#### You can reach me through 📫 0792715825
+#### You can reach me through 📫 +254 792 715 825
 
 - 🔭 I’m currently working on coding projects.
 - 🐾 A true believer in __One-step-at-a-time__.
