@@ -1,5 +1,5 @@
-# Hi there 👋          ![nt](https://github.com/user-attachments/assets/f4b600fb-30ae-403a-b2d5-37d8e1caf93e)
-## I'm Nathnael✨✨ 
+# Hi there 👋 
+## I'm Nathnael Sherry✨✨ 
 ### 🌟 Passionate Software Developer | 💻 Coding Enthusiast | 🚀 Tech Innovator  
 #### You can reach me through 📫 +254 792 715 825
 
